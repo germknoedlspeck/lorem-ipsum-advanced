@@ -29,6 +29,14 @@ Nach schweizerischem Archivgesetz sind die Schweizerische Post AG und die Swissc
 
 Historisches Archiv und Bibliothek PTT auf www.mfk.ch.
 
+## Einzelnachweise
+
+Vgl.: Angaben zum Kontext, Verwaltungsgeschichte, auf: >http://pttarchiv.mfk.ch/detail.aspx?ID=35<, abgerufen am 7. März 2011.
+Vgl.: Die Bestände des PTT-Archivs, auf: > Archivlink (Memento des Originals vom 8. Februar 2013 im Internet Archive) i Info: Der Archivlink wurde automatisch eingesetzt und noch nicht geprüft. Bitte prüfe den Link gemäß Anleitung und entferne dann diesen Hinweis.<, Quellenmaterial für die historische Forschung, auf: >http://www.mfk.ch/pttarchiv.html<, abgerufen am 7. März 2011.
+Vgl.: Quellenmaterial für die historische Forschung, auf: > Archivlink (Memento des Originals vom 11. Mai 2012 im Internet Archive) i Info: Der Archivlink wurde automatisch eingesetzt und noch nicht geprüft. Bitte prüfe den Link gemäß Anleitung und entferne dann diesen Hinweis.<, abgerufen am 2. Mai 2011
+Vgl.: Historisches Archiv und Bibliothek PTT, auf: >http://www.mfk.ch/pttarchiv.html<, abgerufen am 7. März 2011.
+http://www.babs.admin.ch/de/aufgabenbabs/kgs/inventar.html
+Vgl.: Nutzung des Archivs, auf: > Archivlink (Memento des Originals vom 8. Februar 2013 im Internet Archive) i Info: Der Archivlink wurde automatisch eingesetzt und noch nicht geprüft. Bitte prüfe den Link gemäß Anleitung und entferne dann diesen Hinweis.<, abgerufen am 7. März 2011. Vgl.: Nutzung des Archivs, auf: > Archivlink (Memento des Originals vom 8. Februar 2013 im Internet Archive) i Info: Der Archivlink wurde automatisch eingesetzt und noch nicht geprüft. Bitte prüfe den Link gemäß Anleitung und entferne dann diesen Hinweis.<, abgerufen am 7. März 2011.
 
 ## zusätzlicher Schmarrn
 
